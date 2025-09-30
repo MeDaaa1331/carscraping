@@ -16,3 +16,4 @@
 - Chance for dispatch alert
 
 **Showcase:**
+**Discord: (Support and more of my work):** https://discord.gg/Ze4m2Uyxjw
